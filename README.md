@@ -1,1 +1,1 @@
-# .github
+# International Biometrics Society - Australasian Region
